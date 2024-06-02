@@ -1,1 +1,1 @@
-[厚积薄发](https://t.me/AmandaGauss2004)
+https://t.me/AmandaGauss2004
