@@ -1,3 +1,5 @@
-https://t.me/Mark7Hicksm
+tg全封了
+
+卖菜刀的 记得撇清关系 拿菜刀去干嘛 全部不知情
 
 其它问题请在Issues 提问
